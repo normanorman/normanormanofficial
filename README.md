@@ -1,2 +1,0 @@
-# normanormanofficial
-personal site
